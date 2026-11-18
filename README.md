@@ -2,7 +2,7 @@
 
 - 🔭 Atualmente trabalho no setor administrativo
 - 🌱 Estou estudando Web, aplicando conceitos e criando aplicações
-- 😄 Pronomes: ele/dele
+
 
 #
 
